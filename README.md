@@ -1,0 +1,2 @@
+# Grantcoin
+New Crypto-currency
